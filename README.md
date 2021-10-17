@@ -1,2 +1,2 @@
-# ericreger.com
+# ericreger.github.io
  
